@@ -30,8 +30,12 @@ Target campaign based on education level to match content and product relevance.
 Shift marketing efforts and credit strategies towards housing loans.
 
 CONCLUSION:
-The marketing campaign reveals that short, focused interactions drive higher conversion rate, especially in the cellular, education level marital and housing loan segments. Success rate peak in a specific month highlighting key periods for campaign intensity.
+The marketing campaign reveals that short, focused interactions drive higher conversion rate, especially in the cellular, education level marital and housing loan segments.
+
+Success rate peak in a specific month highlighting key periods for campaign intensity.
+
 Higher response  among educated clients and strong housing loan uptake suggest opportunities for targeted messaging and product refinement.
+
 Finally going forward, aligning offers with customer behavior, optimizing communication and focusing on high-performing segments will enhance overall campaign effectiveness in the future.
 
 
